@@ -1,16 +1,14 @@
-## Hi there 👋
+## Hey!✌️
 
-<!--
-**Ndplsmtschsrtklm/Ndplsmtschsrtklm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+👨‍🎓 I'm a student (7th sem.) of Electrical and Information Technology at Hochschule Düsseldorf, specializing in Information Technology.
+🔍 My fascination with AI is immense, and I'm eager to achieve success in this thrilling field.
 
-Here are some ideas to get you started:
+🎓 My current goal? To successfully complete my bachelor's degree and embark on a career that feeds my curiosity and passion for innovative technologies.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🏋️‍♂️ When I'm not studying or coding, you'll find me at the gym working on my fitness, or Sleeping .🍳
+
+📚 I'm an avid reader of self-development books that inspire me to grow both personally and professionally.
+
+🎮 During the colder months, I retreat into watching movies, with my Girlfriend – it's a great balance to my academic life.
+
+---
