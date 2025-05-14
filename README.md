@@ -1,7 +1,7 @@
 ## Hey!✌️
 
 👨‍🎓 I'm a student (7th sem.) of Electrical and Information Technology at Hochschule Düsseldorf, specializing in Information Technology.
-🔍 My fascination with AI is immense, and I'm eager to achieve success in this thrilling field.
+🔍 My fascination with IT is immense, and I'm eager to achieve success in this thrilling field.
 
 🎓 My current goal? To successfully complete my bachelor's degree and embark on a career that feeds my curiosity and passion for innovative technologies.
 
